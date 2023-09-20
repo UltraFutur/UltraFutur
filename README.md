@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UltraFutur
+- 👋 Hi, I’m Laura (@UltraFutur)
 - 👀 I’m interested in deepth coding
 - 🌱 I’m currently learning to improve my skills
 - 💞️ I’m looking to collaborate on amazing projects
